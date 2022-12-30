@@ -8,6 +8,8 @@
 
 ## GitBook Link :- [https://mjn.gitbook.io/](https://mjn.gitbook.io/)
 
+## Oneliner Link :- [https://github.com/t0fy/oneliner](https://github.com/t0fy/oneliner)
+
 ## Telegram :- [https://t.me/mjroot](https://t.me/mjroot)
 
 **All the credits to all the contributors, without you all it could have never been possible**
