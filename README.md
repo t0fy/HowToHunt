@@ -12,6 +12,8 @@
 
 ## Telegram :- [https://t.me/mjroot](https://t.me/mjroot)
 
+## Telegram :- [https://t.me/x25r1](https://t.me/x25r1)
+
 **All the credits to all the contributors, without you all it could have never been possible**
 
 ****
